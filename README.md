@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @JieGeiGei
+- 📫 How to reach me: qq1476779
